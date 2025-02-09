@@ -1,1 +1,2 @@
-Sinau Github
+Sinau Github 
+Belajar serius
